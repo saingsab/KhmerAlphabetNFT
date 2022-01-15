@@ -10,3 +10,5 @@ You can do anything like flipping or whatever. The fund from this collection wil
 Rewards will drop to all participants and as well as a learner you will earn while you educate yourself about blockchain and cryptocurrency. 
 
  For  NFT collections holders will get a native token of the project that will represent as governance token with full authority and you will use this right to vote for the decision of the direction of the platform. 
+
+ Check out here: https://opensea.io/collection/khmeralphabet
